@@ -1,0 +1,2 @@
+# SCY
+Studying
